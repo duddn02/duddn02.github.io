@@ -1,1 +1,1 @@
-# 김영우
+# duddn02.github.io
